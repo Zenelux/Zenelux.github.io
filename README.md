@@ -1,2 +1,2 @@
-**# Zenelux.github.io**
+# **Zenelux.github.io**
 Cyrus Cesar C. Toral
