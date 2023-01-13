@@ -4,11 +4,7 @@
 
 ----------------------------
 
-Why my username is Zenelux
-
-1. It reminds me of someone
-2. It's cool
-3. Goodbye
+I have been trying for 3 years and she still isn't into me
 
 ![alt text](https://media.tenor.com/97sD3prHJcoAAAAC/funny-memes.gif)
 
