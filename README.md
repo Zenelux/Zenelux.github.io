@@ -1,6 +1,5 @@
 # *Zenelux.github.io*
 **Cyrus Cesar C. Toral**
-
 **from LG-Campion**
 
 ----------------------------
