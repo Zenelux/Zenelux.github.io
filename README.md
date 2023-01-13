@@ -10,7 +10,7 @@ Why my username is Zenelux
 2. It's cool
 3. Goodbye
 
-![alt text](https://user-images.githubusercontent.com/122326381/212216610-00c95d4c-dd22-41a4-979c-742f39dc0dbb.gif)
+![alt text](https://www.gifcen.com/wp-content/uploads/2022/01/meme-gif-3.gif)
 
 [link to my crush facebook profile](https://www.youtube.com/watch?v=xvFZjo5PgG0)
 
