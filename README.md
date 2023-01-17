@@ -1,5 +1,4 @@
-# ***Zenelux***
-**Also known as Cyrus Cesar C. Toral**
+# ***Zenelux****
 **from LG-Campion**
 
 ----------------------------
