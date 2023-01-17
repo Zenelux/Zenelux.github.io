@@ -17,7 +17,7 @@ Because I use Discord and Reddit
 
 ![image](https://user-images.githubusercontent.com/122326381/212782911-82a8c7bf-3aa5-403a-bd2c-6ff06406fed8.png)
 
-![image](https://user-images.githubusercontent.com/122326381/212783055-ab4af0a5-f0d4-41eb-8ce0-0ea047b2fc56.png)
+![image](https://user-images.githubusercontent.com/122326381/212783055-ab4af0a5-f0d4-41eb-8ce0-0ea047b2fc56.png =400x400)
 
 and these are just few of the memes I have gotten from these wretched websites
 
