@@ -25,5 +25,5 @@ my fav song from him is his cover of Come Together from the Beatles
 
 ![image](https://user-images.githubusercontent.com/122326381/212783688-7fd51152-ffd5-4417-bde0-f0b09fabf311.png)
 
-[link to my crush facebook profile](https://www.youtube.com/watch?v=xvFZjo5PgG0)
+[link to my crush youtube channel](https://www.youtube.com/watch?v=xvFZjo5PgG0)
 
