@@ -11,21 +11,19 @@ I also consider myself a weird person
 
 *why?*
 
-Because I use Discord and Reddit
+Because I just am
 
-![image](https://user-images.githubusercontent.com/122326381/212782852-d027eb29-e58a-469b-8ede-bd8fcfe092bf.png)
-
-![image](https://user-images.githubusercontent.com/122326381/212782911-82a8c7bf-3aa5-403a-bd2c-6ff06406fed8.png)
-
-![image](https://user-images.githubusercontent.com/122326381/212783055-ab4af0a5-f0d4-41eb-8ce0-0ea047b2fc56.png)
-
-and these are just few of the memes I have gotten from these wretched websites
+![image](https://user-images.githubusercontent.com/122326381/212783772-39596202-ceaf-477a-8195-3d91815330a0.png)
 
 I also like Michael Jackson
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ubR9cXWkXv8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+my fav song from him is his cover of Come Together from the Beatles
+
+![image](https://user-images.githubusercontent.com/122326381/212783757-3e68e4c7-06ef-4087-9e7d-f2450ce55399.png)
 
 *the end*
+
+![image](https://user-images.githubusercontent.com/122326381/212783688-7fd51152-ffd5-4417-bde0-f0b09fabf311.png)
 
 [link to my crush facebook profile](https://www.youtube.com/watch?v=xvFZjo5PgG0)
 
